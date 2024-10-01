@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Sylvana 
-- 👀 I’m interested in practicing piano and work out
+- 👀 I’m interested in practicing piano and working out
 - 🌱 I’m currently learning at the university of Sherbrooke for a master's degree in BI
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me 
